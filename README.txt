@@ -1,0 +1,1 @@
+Je fais des études, mon projet est de travailler en tant que développeur.
